@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @lloydcmb
+- 👀 I’m interested in IT, telecommunications and VoIP applications / software.
+- 🌱 I’m currently learning more about the coding world
+- 📫 How to reach me ... lloydcmb@icloud.com
